@@ -1,0 +1,2 @@
+# linksafeya
+yalink
